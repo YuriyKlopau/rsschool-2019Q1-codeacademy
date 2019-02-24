@@ -1,1 +1,2 @@
-# rsschool-2019Q1-codeacademy
+Yuriy Klopau 
+https://www.codecademy.com/users/Neas133/achievements
